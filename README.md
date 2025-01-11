@@ -1,7 +1,7 @@
 ### MUSLIM CYBER ARMY 313
 ![](https://envs.sh/9z4.png)
 
-🥷 Muslim Cybe rArmy 313.
+🥷 Muslim Cyber Army 313.
 🥷 Owner:: Arena Erin
 🥷We are basically Bangladeshi. 
 🥷We support all Muslim countries.
