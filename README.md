@@ -1,4 +1,4 @@
-### Hi there 👋, MUSLIM CYBER ARMY 313
+### MUSLIM CYBER ARMY 313
 ![](https://envs.sh/9z4.png)
 
 🥷 Muslim Cybe rArmy 313.
